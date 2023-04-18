@@ -1,5 +1,5 @@
 ###################
-ZIDANE FIQRIANSYA
+ZIDANE FIQRIANSYAH
 ###################
 
 17200533 - 17.6A.07 - TUGAS WP 2
